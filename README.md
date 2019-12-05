@@ -1,0 +1,2 @@
+# luat
+hay co gang
